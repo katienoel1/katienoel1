@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @katienoel1
+- 👀 I’m interested in python, bmx, cars, physics, softball, reading & writing fiction, music, videogames
+- 🌱 I’m currently learning python 🐍
+- 📫 How to reach me: discord.com/users/yee_its_kt
